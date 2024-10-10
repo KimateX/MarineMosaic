@@ -10,6 +10,6 @@
  - > **DON'T make +18 jokes and DON'T talk about sensitive topics like : domestic vio**nce, and s**ual orientation , Ab*se etc.. cuz they make discomfort**
  - > If you are the kind of person who tends to ignore the feelings and thoughts of those around you, DON'T int with me cuz I'm tired of toxic friendships.
  - > and if u dont like me u can hide or block me `idc`
-   
+ - > I will be happy if u don't bother my friends :D
 
 </details>
