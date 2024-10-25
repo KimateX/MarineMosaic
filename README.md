@@ -1,5 +1,6 @@
 ## MarineMosaic
 **This repository is a curated collection of nothing**  *if u wanna int read these info* 
+
 <details>
 
 <summary>introduction</summary>
