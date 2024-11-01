@@ -1,6 +1,6 @@
 ---
 name: 'MarineMosaic '
-about: 'No issue template '
+about: 'huohuo theme'
 title: ''
 labels: Nothing
 assignees: kadita-san
